@@ -1,7 +1,7 @@
 # Rosie Zhong
 
 ## Contact information
-[Email](rosiezhongxf@gmail.com)
+[Email](mailto:rosiezhongxf@gmail.com)
 <br>
 <br>
 ## Research
