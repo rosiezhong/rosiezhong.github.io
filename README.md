@@ -1,4 +1,4 @@
-# Rosie Zhong
+# Rosie Zhong's homepage
 
 ## Contact information
 [Email](mailto:rosiezhongxf@gmail.com)
