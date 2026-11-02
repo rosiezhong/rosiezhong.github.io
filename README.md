@@ -9,6 +9,7 @@
 [Github](https://github.com/rosiezhong) <br>
 [Google Scholar](https://scholar.google.com/citations?user=iBiH78kAAAAJ&hl=en) <br>
 [ORCID](https://orcid.org/0009-0009-8947-3958) <br>
+[Figshare](https://figshare.com/authors/Rosie_Zhong/24247965) <br>
 <br>
 <br>
 ## Social media
